@@ -53,6 +53,7 @@ Muntanya
 
 
 ------------------------------------------------ Ruta provisional ------------------------------------------------
+
 Día 1-2: Getxo y Sopela - Comienza tu viaje en Getxo, disfrutando de sus playas y la impresionante vista del Puente de Vizcaya. Luego, dirígete a Sopela para explorar sus hermosas playas y acantilados.
 
 Día 3: Bakio y Gaztelugatxeko Doniene - Visita Bakio, conocido por su playa y viñedos. No te pierdas Gaztelugatxe, una isla conectada a tierra firme por un puente de piedra, famosa por su iglesia y vistas impresionantes.
