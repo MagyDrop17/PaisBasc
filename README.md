@@ -27,19 +27,26 @@ Día 13-14: Pamplona - Finaliza tu viaje en Pamplona para experimentar los Sanfe
 
 ## Altres
 
-### Campers
-Camper Comprada
+### Campers
+- Camper Comprada a roadsurfer.
+- WW california beach.
 
-Aigua de les benzineres o cementiris
 
-Donosti i zaurauzz no vol turismes de furgo
+### On conseguir aigua gratis i on ducharse 
+- Benzineres.
+- Cementiris.
+- Duchas aigua calent 1 euro a San Sebastian.
 
+### On no volen turisme de furgoneta?
+- Donosti
+- zaurauzz 
+
+### Pàgines i apps pel viatge
 ⁃ Parking4night app
 ⁃ Areasac web
 
-Dichas aguan caliente 1 euro SAN sebastian.
-
-Sidreria (menjar basc) petritegi
+### On menjar? 
+- Sidreria petritegi
 
 Zarauff mati i flysch i dormir astillero. Poliesportiu ducha.
 Guetaria tarda
